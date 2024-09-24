@@ -1,5 +1,5 @@
 Shajeetha
 shajees50@gmail.com
-Sandhiya 
-vidya
-Srinithi
+Sandhiya T
+vidya S
+Srinithi V
